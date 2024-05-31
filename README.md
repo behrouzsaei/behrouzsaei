@@ -1,5 +1,5 @@
 # 👋 Hi there, I'm Behrouz
-## I'm a Husband, Father, Data scientist, Manager and Always Student🤣
+## I'm a Husband, Father, Data scientist, Manager and Always a Student🤣
 - 👀 I’m interested in "AWE EXPERIENCE"
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on with other content creators
